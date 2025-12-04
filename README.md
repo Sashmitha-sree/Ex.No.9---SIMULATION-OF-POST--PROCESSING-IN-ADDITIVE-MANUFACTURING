@@ -51,8 +51,8 @@
 
 
 
-### Name: JYOTSHANA S R
-### Register Number: 212224230111
+### Name: Sashmitha Sree K V 
+### Register Number: 212224230255
 
 ## Result: 
 ### Thus the simulation on the Postprocessing in additive manufacturing is completed.
